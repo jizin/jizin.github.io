@@ -1,2 +1,2 @@
 # jizin.github.io
-Currículo
+Meu currículo :)
